@@ -1,0 +1,4 @@
+- Hey, my handle is @robocthulhu
+- I play guitar in hardcore, punk, metal bands
+-   I also like other genres - synthwave, synthpop, darkwave, citypop, rap/hip-hop, new wave ...
+- I'm currently into retro gaming, big fan of the GBA and Castlevania games
